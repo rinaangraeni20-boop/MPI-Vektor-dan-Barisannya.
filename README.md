@@ -1,0 +1,2 @@
+# MPI-Vektor-dan-Barisannya.
+MPI VEKTOR DAN BARISANNYA KELAS X SMKN 5 KOLUT
